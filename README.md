@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **alisalamehhjouj@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/drawings/d/1B6CW7acLmdulax75KSyWnW-5JB0VEj0m7kNY-1URkLg/edit?usp=sharing](cv)
+- 📄 Know about my experiences [CV](https://docs.google.com/drawings/d/1B6CW7acLmdulax75KSyWnW-5JB0VEj0m7kNY-1URkLg/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
